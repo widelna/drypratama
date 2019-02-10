@@ -1,2 +1,0 @@
-# drypratama
-daftar isi
